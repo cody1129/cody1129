@@ -4,7 +4,7 @@
 - 📫 How to reach me: Feel free to email me at clhayworth@gmail.com.
 - 😄 Pronouns: He/him.
 - ⚡ Fun fact: I enjoy experimenting in the kitchen and learning to cook new meals—it’s a blend of creativity and precision that parallels my analytical mindset.
-- 
+
 Looking forward to connecting and exploring opportunities together!
 
 <!---
